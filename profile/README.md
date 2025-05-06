@@ -1,6 +1,6 @@
 # Elementor Pro Discount Code May 2025 – 75% Off (Legit)
 
-Looking for a **legit Elementor Pro discount code** or maybe some exclusive deals?
+Looking for a **[legit Elementor Pro discount code](https://bit.ly/3wrjAOp)** or maybe some exclusive deals?
 
 Well, you're definitely in the right spot. Here, I’m sharing working Elementor Pro coupon codes that can get you up to **75% off** this year.
 
@@ -33,11 +33,11 @@ Good news—it’s super simple to unlock your Elementor Pro discount. Here’s 
 
 ![go to official elementor website](https://github.com/user-attachments/assets/b76a1403-1de0-430c-9376-ec6bb1023755)
 
-First things first, click through using our **exclusive Elementor discount code link** to head over to the Elementor pricing page.
+First things first, click through using our **[exclusive Elementor discount code link](https://bit.ly/3wrjAOp)** to head over to the Elementor pricing page.
 
 If you're ready to take your website up a notch, you can get the Elementor Pro Plugin. 
 
-Want to save even more? Don’t miss the **33% discount on Elementor Hosting**—that’s a smart move if you ask me.
+Want to save even more? Don’t miss the **[33% discount on Elementor Hosting](https://bit.ly/3wrjAOp)**—that’s a smart move if you ask me.
 
 ### Step 2: Pick Your Plan Carefully
 
