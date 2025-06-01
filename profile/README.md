@@ -1,10 +1,10 @@
-# Elementor Pro Discount Code May 2025 – 75% Off (Legit)
+# Elementor Pro Discount Code June 2025 – 75% Off (Legit)
 
 Looking for a **[legit Elementor Pro discount code](https://bit.ly/3wrjAOp)** or maybe some exclusive deals?
 
 Well, you're definitely in the right spot. Here, I’m sharing working Elementor Pro coupon codes that can get you up to **75% off** this year.
 
-## Latest Elementor Pro Discount Codes – May 2025:
+## Latest Elementor Pro Discount Codes – June 2025:
 
 [![Elementor Pro Discount](https://github.com/user-attachments/assets/3def621a-f6ef-4512-854f-42e085e35d99)](https://bit.ly/3wrjAOp)
 
